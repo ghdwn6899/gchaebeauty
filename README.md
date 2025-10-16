@@ -1,2 +1,2 @@
-# gchaebeauty
+# g-chaebeauty
 eyelash
